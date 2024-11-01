@@ -16,6 +16,5 @@ um avatar virtual da pintura mais famosa do mundo, que, acompanhado de uma voz s
 ## 🚀 Resultados
 Os resultados superaram minhas expectativas! O vídeo se tornou uma mistura única de humor e arte, gerando boas risadas e reflexões sobre a enigmatica obra de Da Vinci.
 
-💭 Reflexão (Opcional)
 ## 💭 Reflexão (Opcional)
 Nunca imaginei que aprender a usar essas tecnologias seria tão rápido e divertido. Estou encantada com as infinitas possibilidades que a IA Generativa oferece!
